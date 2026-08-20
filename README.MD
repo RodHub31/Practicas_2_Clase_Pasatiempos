@@ -1,0 +1,1 @@
+##En este documento se verá de forma muy básica una serie de actividades, pasatiempos y metas que disfruto realizar como licenciado en tecnologias de la información y como creador de contenido digital en diferentes plataformas 
